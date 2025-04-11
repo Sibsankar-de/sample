@@ -1,3 +1,0 @@
-# sample
-
-jdfh hkxcbv mxczb 
